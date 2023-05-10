@@ -9,5 +9,5 @@
 
 - Minha rede social: **leosousarev** 
 
-![](https://media.tenor.com/c56mUPIqFyUAAAAj/hello-kitty.gif)
+![](https://media.tenor.com/eZDY9hhhIzMAAAAM/hello-kitty.gif)
 
