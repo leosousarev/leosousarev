@@ -9,5 +9,5 @@
 
 - Minha rede social: **leosousarev** 
 
-![](https://media.tenor.com/kWMqbOVaZOoAAAAM/yay-lakers.gif)
+![](https://media.tenor.com/4E4srMUMMrwAAAAS/barbie-cartoon-barbie.gif)
 
