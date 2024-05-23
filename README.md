@@ -9,5 +9,5 @@
 
 - Minha rede social: **leosousarev** 
 
-![](https://media.tenor.com/7t6EucTr9C0AAAAd/rx7-mad-mike.gif)
+![](blob:https://web.whatsapp.com/647f54b3-aaef-4a68-9dd3-abd1ae509363)
 
